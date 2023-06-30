@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @pu7nit
+- 👀 I’m interested in coding and eating a lot!
+- 🌱 I’m currently learning python and about to enter university.
+- 📫 How to reach me...(you can't)
